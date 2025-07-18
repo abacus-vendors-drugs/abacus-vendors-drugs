@@ -45,4 +45,6 @@ For those interested in exploring or selling in the Abacus vendors drugs categor
 
 
 
-Update:  07/14/2025
+
+
+Update:  18.07.2025 Just wanted to share that the link is live again.
